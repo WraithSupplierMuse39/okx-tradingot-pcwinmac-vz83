@@ -1,4 +1,4 @@
-# 
+# Último okx trading bot plantillas for Mac OS | VIP okx trading bot plantillas for PC Windows. Featuring análisis de momento and pools de liquidez DEX — optimized for maximum performance.
 
 
 
